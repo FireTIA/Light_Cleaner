@@ -52,7 +52,7 @@
 
 Если у вас возникли вопросы или предложения, вы можете связаться со мной:
 
-- 📧 Email: firetiacontact@example.com
+- 📧 Email: firetiacontact@gmail.com
 
 ---
 
